@@ -58,10 +58,6 @@ Click here to watch the demo
 
 https://drive.google.com/file/d/1CsEaFulJ3-iPhJPa1PUuorScIPhmPUEd/view?usp=drive_link
 
-Or view it directly below 👇
-
-🎥 Watch the Video
-
 🧑‍🏫 Guidance & Support
 
 Under the Naan Mudhalvan Scheme,
